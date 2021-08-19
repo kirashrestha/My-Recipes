@@ -1,4 +1,5 @@
 Instructions 
+
 In a medium-size pot whisk together soy sauce, water, mirin, rice vinegar, sugar, ginger, garlic, and cornstarch.
 Bring mixture to a boil, constantly whisk until sauce is slightly thickened, about 1 minute.
 Transfer 1 cup of the sauce to a bowl to use for basting the chicken.
